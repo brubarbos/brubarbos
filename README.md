@@ -7,4 +7,4 @@ Meu nome é Bruna Ferreira Barbosa
 ### Você pode entrar em contato comigo :brubarbos
 
 @barbosa.bruna.barbosa716@gmail.com.br
-@brunabarbosa
+@brubarbosa
